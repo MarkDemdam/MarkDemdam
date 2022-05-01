@@ -8,7 +8,7 @@ Im **Mark Joseph Demdam** also known as **Mark Demdam**, and I'm a **top GitHub 
 
 ### How to reach me: 
 <a href="mailto: Markdemdam84@gmail.com">
-<img src="https://img.shields.io/badge/-MarkDemdam55%40gmail.com-7B83EB?&style=for-the-badge&logo=Microsoft-outlook&logoColor=white" ></a>  <a  href="https://www.instagram.com/MarkDemdam/">   <img src="https://img.shields.io/badge/@MarkDemdam-%23E4405F.svg?&style=for-the-badge&logo=instagram&logoColor=white"></a>  <a href="https://www.linkedin.com/in/carlcastanas/"><img src="https://img.shields.io/badge/Markdemdam-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white" ></a>  <a  href="https://www.MarkDemdam.netlify.app/"><img src="https://img.shields.io/badge/MarkDemdam.github.io-%2312100E.svg?&style=for-the-badge&logo=safari&logoColor=white"></a>
+<img src="https://img.shields.io/badge/-MarkDemdam84%40gmail.com-7B83EB?&style=for-the-badge&logo=Microsoft-outlook&logoColor=white" ></a>  <a  href="https://www.instagram.com/Mjdemdam0710/">   <img src="https://img.shields.io/badge/@MarkDemdam-%23E4405F.svg?&style=for-the-badge&logo=instagram&logoColor=white"></a>  <a href="https://www.linkedin.com/in/carlcastanas/"><img src="https://img.shields.io/badge/Markdemdam-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white" ></a>  <a  href="https://www.MarkDemdam.netlify.app/"><img src="https://img.shields.io/badge/MarkDemdam.github.io-%2312100E.svg?&style=for-the-badge&logo=safari&logoColor=white"></a>
 
 ### Current Status Quo:
 
